@@ -1,1 +1,0 @@
-# sctraining2020
